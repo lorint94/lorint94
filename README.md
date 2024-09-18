@@ -1,4 +1,4 @@
-## Hi, I'm Lorin, a curious aspiring data analyst. 
+## Hi, I'm Lorin, a curious and creative aspiring data analyst. 
 
 ## Background 
 
